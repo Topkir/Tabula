@@ -1,1 +1,1 @@
-![Uploading Ekran görüntüsü 2024-07-01 131025.png…]()
+https://github.com/Topkir/Tabula/blob/main/asset/1.png
